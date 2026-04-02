@@ -7,3 +7,17 @@ chuẩn bị nào ae ơi
 ds vds vdsv df fd 
  dfbfgb fg fgh nghn gn gh
  fgnb fg f gfnfgn ghn ghghngh
+ sdcsd cvs
+ cds
+ cdssd
+ cs
+ dc
+ sd
+ sd
+ c
+ dc
+ dcs
+ sdc
+ cds
+
+ dsc
