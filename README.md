@@ -4,20 +4,7 @@ chuẩn bị nào ae ơi
 đi nào các bác
 đi đâu bây giờ 
 đi lại ntn 
-ds vds vdsv df fd 
- dfbfgb fg fgh nghn gn gh
- fgnb fg f gfnfgn ghn ghghngh
- sdcsd cvs
- cds
- cdssd
- cs
- dc
- sd
- sd
- c
- dc
- dcs
- sdc
- cds
-
- dsc
+dsfbdfbd fdfb dfbdfb dfbdfb dbfd f
+ dfbdfbdfbdfbdfbdfb d dfb dfb dfb dfb
+ d bdf dfb dfb dfb dfb dfb dfb 
+  dfbdfb dfbdfb df db dfb df
